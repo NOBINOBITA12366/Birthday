@@ -1,4 +1,4 @@
-.......IN THIS DAY MY PRINCESS WERE BORN HAPPY BIRTHDAY CUTIE..........?
+.......IN THIS DAY MY PRINCESS WERE BORN HAPPY BIRTHDAY CUTIE.........?
 
 
 <h3><img  style="align-item" :"center" src="https://telegra.ph/file/14c2a66897e5c18518476-a334dbb6b0374a8ceb.jpg" width="90px" height="80%">
